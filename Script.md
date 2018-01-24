@@ -16,6 +16,7 @@ As he mooved slowly.
 As he walked behind the zoo he could see the trees and thick foliage growing above the heavy stone wall that ran behind the zoo; and hear the sounds of animals in the distance.
 The King Of All had heard the sound before, but today there was a new sound, sort of a cross between an angelic horn and an elephant’s trumpet.
 
+But then all of a sudden the zookeeper then comes in. He says who here is going to pay the rent for me today and all of a sudden I wonder what it means to be financially stable. It all makes sense now! As I pull out the major bankrolls from the bank I robbed yesterday I then wonder how fast can I run
 ## Cast
 
 * Young Boy: Eliel
